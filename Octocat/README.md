@@ -1,3 +1,3 @@
-Hello, this is JOJO.
+HI, JOJO.
 QQQQQQQQQQQQQQQQQQQ
 Let's start with JOJOSANG
